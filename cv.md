@@ -5,7 +5,7 @@
 * **Tel** +998 88 890 00 00
 * **Discord** Jamshid Bakaev (jamabakaev)
 
-2. ## Info
+## 2. Info
 I am from Uzbekistan, Tashkent and I am 24 years old. I have graduated SFEDU university in Rostov-on-Don,Russia with a degree in architecture. I like creating projects in any sphere and then observe the realization or functioning the fruits of my work. Responsibility, ambition, sociability and enthusiasm with interesting project are my main priorities in work. I have worked couple of years in architecture buro in Russia and Uzbekistan.
 
 ## 3. Skills
