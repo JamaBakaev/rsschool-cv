@@ -1,5 +1,4 @@
 # Bakaev Jamshid
-![Avatar](https://disk.yandex.ru/i/spbOlvdAXg7iXQ)
 ## Contacts
 **Email** jamabakaev1@gmail.com
 **Tel** +998 88 890 00 00
