@@ -1,5 +1,5 @@
 # Bakaev Jamshid
-![IMG_88683](https://user-images.githubusercontent.com/120016404/207251729-d7328058-68f0-45ba-999f-aca8f8f88b66.jpg)git
+![IMG_88683](https://user-images.githubusercontent.com/120016404/207251729-d7328058-68f0-45ba-999f-aca8f8f88b66.jpg)
 ## 1. Contacts
 * **Email** jamabakaev1@gmail.com
 * **Tel** +998 88 890 00 00
