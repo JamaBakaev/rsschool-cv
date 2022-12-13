@@ -1,1 +1,1 @@
-rsschool-cv
+https://JamaBakaev.github.io/rsschool-cv/cv
